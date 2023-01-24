@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @quinnxade
-- 🌱 I’m currently learning Computing and Cybersecurity
+- 🌱 I’m currently learning Computing
 - 📫 How to reach me.. sophiemg.1222@gmail.com
 
 <!---
